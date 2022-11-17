@@ -8,7 +8,7 @@ Si A
 
 Lahh Magpaka tanga tayoo
 
-![alt text](https://scontent.fmnl13-1.fna.fbcdn.net/v/t39.30808-6/315386668_946456626326288_6569477161479319495_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=5cd70e&_nc_eui2=AeHqtQ_ozuHAUzPRA3vVhMNTAr28Lp47pbsCvbwunjuluwQT0qtdS6HXler23j8uumap6xMm-7S6AaJ67CWdlf2r&_nc_ohc=6uoqT-CRggIAX9-ombW&_nc_ht=scontent.fmnl13-1.fna&oh=00_AfDHP8fV811GFteUahs5zW9CGWCXvk-gsYROzreMoroLCA&oe=637B94E8)
+![alt text](https://scontent.fmnl13-2.fna.fbcdn.net/v/t1.15752-9/315526072_451148817101247_5127574639323389811_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=ae9488&_nc_eui2=AeFW9OYXFHC2625mMSSwFaO49Z6NuLVOb4n1no24tU5viZnika94wnHBjNS3AgRx6pGJSKaGUCuvxP4BCPo6IaEw&_nc_ohc=9Dn8QDdHeHEAX8GjDP7&tn=V0p9bUAL98uM8sW3&_nc_ht=scontent.fmnl13-2.fna&oh=03_AdQsxuFFnKDuDW2y3IfEKYeKoPtzhjv5HPdUcO96A50G7A&oe=639D87F7)
 
 Lahh
 
